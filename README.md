@@ -1,6 +1,6 @@
 # StartupBeyin
 
-Community Links
+Community Links..
 
 Discord Linki : 
 https://discord.gg/QxHDHJxndr 
